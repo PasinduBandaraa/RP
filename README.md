@@ -1,1 +1,1 @@
-# Boo Boo is angryyyyyyyyyy since Doo Doo ate ice cream
+# Doo Doo is angryyyyyyyyyy since boo boo ate ice cream
